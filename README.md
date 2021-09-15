@@ -1,1 +1,1 @@
-# machinsoft.github.io
+# machinsoft.ru
